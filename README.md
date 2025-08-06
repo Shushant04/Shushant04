@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Shushant Dharawad
 - 👀 I’m interested in Learning diffrent kinds of activities ,sports ,buisness ,dance
-- 🌱 I’m currently pursing BE in SHRI DHARMASTHALA COLLEGE OF ENGINEERING AND TECHNOLOGY,DHARWAD
 - 💞️ I’m looking to collaborate on CODING ,BUSINESS IDEAS 
 - 📫 How to reach me ....shushantdharwad04@gmail.com 
 - 😄 Pronouns: ...
